@@ -1,0 +1,1 @@
+Use this macro calculator to build out meals that align with you and your goals. You'll see the macro and calorie breakdown for each ingredient. Use the drop down to select and ingredient and see swaps that will be the equivalent macros. Enjoy xx 
